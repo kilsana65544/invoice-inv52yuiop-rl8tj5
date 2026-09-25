@@ -1,3 +1,3 @@
 25/09/2026
 
-<!-- Round 1 · 2026-09-25 13:25:54 · PD9wJZYF · kym@att.net, wfb3_65@verizon.net -->
+<!-- Round 2 · 2026-09-25 13:26:00 · ZI4LDjGO · erniecolburn@comcast.net, johkat@comcast.net -->
